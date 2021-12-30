@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Detrarj1
+- 👀 I’m interested in ...Grasping and growing in Tech 
+- 🌱 I’m currently learning ..Scrum\Business Analyst\Python.
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ... Detrarj1@aol.com 
